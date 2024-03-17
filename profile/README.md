@@ -1,8 +1,10 @@
-Op zondag 17 maart om 16:45 uur staat er een boeiende Eredivisie-wedstrijd gepland tussen Sparta Rotterdam – Ajax.Een reeks lastige wedstrijden wordt zondagmiddag door Sparta Rotterdam afgesloten. 
+Op zondag 17 maart om 16:45 uur staat er een boeiende Eredivisie-wedstrijd gepland tussen Sparta Rotterdam – Ajax.
 
 <strong>🔴KIJKEN▶ [Ajax - Rotterdam Live LiveStream](https://sports2tv.live/eredivisie/)</strong>
 
 <strong>🔴KIJKEN▶ [Ajax - Rotterdam Live LiveStream](https://sports2tv.live/eredivisie/)</strong>
+
+Een reeks lastige wedstrijden wordt zondagmiddag door Sparta Rotterdam afgesloten. 
 
 De Kasteelclub krijgt dan bezoek van 36-voudig landskampioen Ajax. Om 16.45 uur gaat de bal rollen op Het Kasteel.
 
